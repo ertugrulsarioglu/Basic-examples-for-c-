@@ -1,1 +1,0 @@
-# Temel-c-rnekleri
